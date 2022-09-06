@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @IrecruitITgeniuses
 - 👀 I’m interested in IT boffins, technical gurus, shape shifters and pink unicorns
-- 🌱 I’m currently learning aboutthe diverse world of IT
+- 🌱 I’m currently learning about the diverse world of IT - can we ever know enough!
 - 💞️ I’m looking to collaborate on anything IT
 - 📫 How to reach me You can pop me an email: michele.michie8@gmail.com
 
